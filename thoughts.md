@@ -4,4 +4,3 @@ One strategy I am committed to trying during the rest of Mod 0 is the Pomodoro t
 Another strategy is making sure that I have some time scheduled for myself.
 I want to shoutout to my best friend for helping me with my homework. His name is Jeo D. Love you!
 I wish they would give us more time to work on these exercises.
-I wish I could actually see the instructor's terminal.
